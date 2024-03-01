@@ -1,7 +1,7 @@
 ***
 <h5 align="center">
   
-<img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/> [' ' And as my gaze upon you deepens . . Does my heart have a chance ?' '](https://open.spotify.com/track/0QBPWTTVyV3VclqALtmLWv?si=bfeace9972c84fac) <img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/> [' ' If I'm gon die for you, If I'm gon kill for you, Then I'll spill this blood for you' '](https://open.spotify.com/track/0QBPWTTVyV3VclqALtmLWv?si=bfeace9972c84fac) <img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/>
 <h5 align="center">
 <img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/>
 </h5>  
