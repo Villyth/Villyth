@@ -1,7 +1,7 @@
 ***
 <h5 align="center">
   
-<img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/> [' ' If I'm gon die for you, If I'm gon kill for you, Then I'll spill this blood for you' ']((https://youtu.be/XR7Ev14vUh8?list=RDXR7Ev14vUh8)) <img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/> [' ' If I'm gon die for you, If I'm gon kill for you, Then I'll spill this blood for you' '](https://open.spotify.com/track/5W3Mi5lW7CIr3eTj1cc69p?si=5094d96e239646a4) <img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/>
 <h5 align="center">
 <img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/>
 </h5>  
