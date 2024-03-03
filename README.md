@@ -29,6 +29,10 @@ c+h okay unless my user states dnt / uncomf . i will distance myself , sorry .. 
 
 ***
 
+ᴛᴀᴋᴇɴ ʙʏ ɢᴀᴍᴇʀ ᴀɴᴅ ᴏʀᴘʜʏ ᴍʏ ʟᴏᴠᴇꜱ
+
+***
+
 crd to [ouija](https://ouija.crd.co/#) / [golden](https://goldenkamuy.crd.co/#small) for dividers n stamps , [jester](https://www.tumblr.com/jesteroftheangels) for graphics >_<
 
 MADE BY [ORPHEUS](https://github.com/Ovrpheus) , YOU'RE WELCOME!! ILYSM SANLANG <3 /p (THANK YOU SO MUCH GEGE ILYT!/P)
