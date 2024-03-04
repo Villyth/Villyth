@@ -3,16 +3,16 @@
   
 <img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/> [' ' If I'm gon die for you, If I'm gon kill for you, Then I'll spill this blood for you' '](https://open.spotify.com/track/5W3Mi5lW7CIr3eTj1cc69p?si=5094d96e239646a4) <img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/>
 <h5 align="center">
-<img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery06/5b97b1bb.png?v=53e72adc"/>
 </h5>  
 
 <h4 align="center">
 Vinny/Hades/Childe . ✧. she/they . ⊹ 
   
-𝐎𝐒𝐃𝐃-𝟏𝐚 𝐒𝐮𝐬𝐩𝐞𝐜𝐭𝐞𝐝 <img src="https://ouija.crd.co/assets/images/gallery23/e9da0907.gif?v=b8c53f22"/> 
+𝐎𝐒𝐃𝐃-𝟏𝐚 𝐒𝐮𝐬𝐩𝐞𝐜𝐭𝐞𝐝 <img src="https://goldenkamuy.crd.co/assets/images/gallery24/7601a57c.gif?v=53e72adc"/> 
 </h4> 
 <h5 align="center">
-<img src="https://media.discordapp.net/attachments/1010223180603994204/1213030581210976297/tumblr_2cfd0496db5e4387329e823ed3265960_b973caf6_1280_1.png?ex=65f3fdc3&is=65e188c3&hm=93cbe1b1f53e9f1471f5134d026daef7e9d2881720161e229bea8b7ad8bb1d5e&=&format=webp&quality=lossless"/>
+<img src="https://media.discordapp.net/attachments/1211132431906902027/1214246370026725406/image.png?ex=65f86a0e&is=65e5f50e&hm=1d2b97c8c8c429203d80e5a14ea5383fb9e2f5bad36359d72c29ee09c788726e&=&format=webp&quality=lossless&width=676&height=676"/>
 </h5>  
 <h4 align="center">
 
@@ -24,7 +24,7 @@ c+h okay unless my user states dnt / uncomf . i will distance myself , sorry .. 
 </h4> 
 
 <h5 align="center">
-<img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery10/7540ce0e.png?v=b8c53f22"/>
+<img src="https://goldenkamuy.crd.co/assets/images/gallery06/5b97b1bb.png?v=53e72adc"/>
 </h5>  
 
 ***
@@ -34,6 +34,6 @@ c+h okay unless my user states dnt / uncomf . i will distance myself , sorry .. 
 
 ***
 
-crd to [ouija](https://ouija.crd.co/#) / [golden](https://goldenkamuy.crd.co/#small) for dividers n stamps , [jester](https://www.tumblr.com/jesteroftheangels) for graphics >_<
+crd to [ouija](https://ouija.crd.co/#) / [golden](https://goldenkamuy.crd.co/#small) for dividers n stamps , [crumblita](https://www.tumblr.com/crumblita) for graphics >_<
 
-MADE BY [ORPHEUS](https://github.com/Ovrpheus) , YOU'RE WELCOME!! ILYSM SANLANG <3 /p (THANK YOU SO MUCH GEGE ILYT!/P)
+MADE BY [ORPHEUS](https://github.com/Ovrpheus) , YOU'RE WELCOME!! ILYSM SANLANG <33 (ILY MY GEGE<333)
