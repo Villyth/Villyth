@@ -29,7 +29,7 @@ c+h okay unless my user states dnt / uncomf . i will distance myself , sorry .. 
 
 ***
 <h5 align="center">
-ᴛᴀᴋᴇɴ ʙʏ ɢᴀᴍᴇʀ ᴀɴᴅ ᴏʀᴘʜʏ ᴍʏ ʟᴏᴠᴇꜱ
+ᴛᴀᴋᴇɴ ʙʏ ᴏʀᴘʜʏ ᴍʏ ʟᴏᴠᴇ
 </h5>
 
 ***
