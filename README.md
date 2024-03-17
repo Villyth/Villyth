@@ -1,31 +1,39 @@
 ***
 <h5 align="center">
   
-<img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/> [' ' If I'm gon die for you, If I'm gon kill for you, Then I'll spill this blood for you' '](https://open.spotify.com/track/5W3Mi5lW7CIr3eTj1cc69p?si=5094d96e239646a4) <img src="https://goldenkamuy.crd.co/assets/images/gallery24/3c09289e.gif?v=53e72adc"/>
+<img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless"/>  [' ' If I'm gon die for you, If I'm gon kill for you, Then I'll spill this blood for you' '](https://open.spotify.com/track/5W3Mi5lW7CIr3eTj1cc69p?si=5094d96e239646a4) <img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless"/>
+
+[CERB & MISH CALLOUT](https://docs.google.com/document/d/1z4ZlR_uJhfT6QAgw-iDPfitZJCogg3m4H8ldjWhYBFU/edit?usp=sharing) :3
 <h5 align="center">
-<img src="https://goldenkamuy.crd.co/assets/images/gallery06/5b97b1bb.png?v=53e72adc"/>
+<img src="https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv"/>
 </h5>  
 
 <h4 align="center">
-Vinny/Hades/Childe . ✧. she/they . ⊹ 
-  
-𝐎𝐒𝐃𝐃-𝟏𝐚 𝐒𝐮𝐬𝐩𝐞𝐜𝐭𝐞𝐝 <img src="https://goldenkamuy.crd.co/assets/images/gallery24/7601a57c.gif?v=53e72adc"/> 
+Vinny/Hades/Childe . ✧. she/they . ⊹
+𝐎𝐒𝐃𝐃-𝟏𝐚 𝐒𝐮𝐬𝐩𝐞𝐜𝐭𝐞𝐝 
 </h4> 
 <h5 align="center">
-<img src="https://media.discordapp.net/attachments/1211132431906902027/1214246370026725406/image.png?ex=65f86a0e&is=65e5f50e&hm=1d2b97c8c8c429203d80e5a14ea5383fb9e2f5bad36359d72c29ee09c788726e&=&format=webp&quality=lossless&width=676&height=676"/>
+<img src="https://64.media.tumblr.com/2db1c4724171de1b3195cc2e7d7e7c9a/33e45473835a4979-86/s540x810/18d53ac14c1e1f4cec0505019c0b53de6c878f32.gifv"/>
 </h5>  
 <h4 align="center">
 
-interact with care towards me , ALWAYS . <img src="https://goldenkamuy.crd.co/assets/images/gallery24/231aad5d.gif?v=53e72adc"/>
+interact with care towards me , ALWAYS . <img src="https://64.media.tumblr.com/72ce3df652cb02da74f606171b6c9d40/df9993671d388a92-c9/s75x75_c1/aed97fbd1064eb3886ab3f78249c8ebb23da7533.gifv"/>
 
 check out my [patreon](https://patreon.com/villyth) , [rentry](https://rentry.co/Keqingxuan) and sign my [guestbook](https://villyth.123guestbook.com/)
 
-c+h okay unless my user states dnt / uncomf . i will distance myself , sorry .. <img src="https://goldenkamuy.crd.co/assets/images/gallery24/3d233f56.gif?v=53e72adc"/>
+c+h okay unless my user states dnt / uncomf . i will distance myself , sorry .. <img src="https://vermillion.drr.ac/assets/images/gallery01/0323be38.gif?v=7ca7602c"/>
 </h4> 
 
 <h5 align="center">
-<img src="https://goldenkamuy.crd.co/assets/images/gallery06/5b97b1bb.png?v=53e72adc"/>
+<img src="https://64.media.tumblr.com/0ca2d1bad2af8e71e9ca15fc2e70576f/48b4b7ede78c0375-2f/s540x810/c613c4d00f76d10736dbaa81741baa654c5a4ff1.gifv"/>
 </h5>  
+
+***
+
+<p align ="center">
+<img src="https://ouija.crd.co/assets/images/gallery12/9f207742.gif?v=b7df7a50"/>
+</h5>  
+</p>
 
 ***
 <h5 align="center">
@@ -34,6 +42,6 @@ c+h okay unless my user states dnt / uncomf . i will distance myself , sorry .. 
 
 ***
 
-crd to [ouija](https://ouija.crd.co/#) / [golden](https://goldenkamuy.crd.co/#small) for dividers n stamps , [crumblita](https://www.tumblr.com/crumblita) for graphics >_<
+crd to [ouija](https://ouija.crd.co/#) / [vamp](https://rentry.co/vamptism) for dividers n stamps , [rotten](https://www.tumblr.com/rottenparasite/search/ada) for graphics >_<
 
-MADE BY [ORPHEUS](https://github.com/Ovrpheus) , YOU'RE WELCOME!! ILYSM SANLANG <33 (ILY MY GEGE<333)
+MADE BY [ORPHEUS](https://github.com/Ovrpheus) , YOU'RE WELCOME!! ILYSM SANLANG <33 (TYSM MY GEGE<3 ILYM!!!)
