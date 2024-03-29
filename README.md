@@ -35,12 +35,7 @@ c+h okay unless my user states dnt / uncomf . i will distance myself , sorry .. 
 </p>
 
 ***
-<h5 align="center">
-ᴛᴀᴋᴇɴ ʙʏ ᴏʀᴘʜʏ ᴍʏ ʟᴏᴠᴇ
-</h5>
-
-***
 
 crd to [ouija](https://ouija.crd.co/#) / [vamp](https://rentry.co/vamptism) for dividers n stamps , [rotten](https://www.tumblr.com/rottenparasite/search/ada) for graphics >_<
 
-MADE BY [ORPHEUS](https://github.com/Ovrpheus) , YOU'RE WELCOME!! ILYSM SANLANG <33 (TYSM MY GEGE<3 ILYM!!!)
+MADE BY [ORPHEUS](https://github.com/Ovrpheus) , YOU'RE WELCOME!!
