@@ -1,15 +1,9 @@
-***
-<h5 align="center">
-  
-<img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless"/>  [' ' If I'm gon die for you, If I'm gon kill for you, Then I'll spill this blood for you' '](https://open.spotify.com/track/5W3Mi5lW7CIr3eTj1cc69p?si=5094d96e239646a4) <img src="https://cdn.discordapp.com/emojis/1148420707009691738.gif?size=96&quality=lossless"/>
-
 <h5 align="center">
 <img src="https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv"/>
 </h5>  
 
 <h4 align="center">
-Vinny/Hades/Childe . ✧. she/they . ⊹
-𝐎𝐒𝐃𝐃-𝟏𝐚 𝐒𝐮𝐬𝐩𝐞𝐜𝐭𝐞𝐝 
+Vinny/Hades/Childe . ✧. she/they . ⊹ Sciset obsessed
 </h4> 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/2db1c4724171de1b3195cc2e7d7e7c9a/33e45473835a4979-86/s540x810/18d53ac14c1e1f4cec0505019c0b53de6c878f32.gifv"/>
