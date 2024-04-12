@@ -5,7 +5,7 @@
 
 ***
 
-$${\color{#7051c5}"May the darkness bring the light to you . . ."}$$
+$${\color{#7051c5}"\space May \space the \space darkness \space bring \space the \space light \space to \space you \space . \space . \space . \space "}$$
 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/d8fdb972b9a6a7a42f81786bf9ebbbd9/aad9f5348476e85c-d8/s1280x1920/1bd929d55c464dac2988fed35af2f5c2596dc653.pnj"/>
