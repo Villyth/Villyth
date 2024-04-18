@@ -6,7 +6,7 @@
 </h5>
 
 
-$${\color{#ac191c}"\space Yes \space and \space they \space will \space run \space you \space down \space , \space down \space 'til \space you \space fall \space"}$$
+$${\color{#ac191c}"\space Oh, \space get \space what \space we \space deserve \space"}$$
 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/c8a9b45bfeda18d97822e8118d753823/0b1cbee1c0dad611-dd/s2048x3072/8f4b158106391c9173ecdcea33a70e4998973a60.pnj"/>
