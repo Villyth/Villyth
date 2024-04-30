@@ -13,7 +13,7 @@ $${\color{#ac191c}"\space Oh, \space get \space what \space we \space deserve \s
 </h5>  
 
 <h4 align="center">
-Call me . . . ✧ Uzi , Swan or Vinny . ⊹ Boothill , Black Swan and Imbibitor Lunae heavy IRL / srs ♡ She / They pronouns
+Call me . . . ✧ Uzi , Swan or Vinny . ⊹ Boothill , Black Swan , Neuvillette and Imbibitor Lunae heavy IRL / srs ♡ She / They pronouns
 </h4> 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/265e0fb22d96e08bea81391d2995b8ab/b93506f0e2176062-89/s400x600/0ae28c985abd9d6677e897c81db3fd3fdafb6cf8.gif"/>
@@ -27,7 +27,7 @@ Sign my [guestbook](https://villyth.123guestbook.com/) and I will attempt to res
 
 C+H is always welcomed unless my user states DNI / DNT . I will distance myself , my sincere apologies .. <img src="https://64.media.tumblr.com/3b0de7bc29f7276aab1e4ca49a8179be/f56584a62a20a833-0b/s75x75_c1/bf9187ddf0223a2e3f7bdef9bef427e8932254e2.gif"/>
 
-Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it comes to my IRLs , ( DOUBLES OF DAN HENG / DAN FENG , BOOTHILL , HUA CHENG , ZHONGLI AND CHILDE DO NOT INTERACT / SRS I get aggressive against you guys when I ' m shifted to them delusionally I ' m so sorry ! ) , I have a typing quirk if you haven ' t noticed . . . I space out my punctuation UNLESS very upset . DO NOT REALITY CHECK PLEASE ! I do not like the ' F ' slur . KYS / KMS jokes are STRICTLY not allowed , etc <img src="https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/4e25f56b77720d16-dc/s75x75_c1/57a538e04a41243c39e47cf3233dea812e619c07.gif"/>
+Please be aware that : I dissociate EXTREMELY often , I get narcissistic when it comes to my IRLs , ( DOUBLES OF DAN HENG / DAN FENG , BOOTHILL , HUA CHENG , ZHONGLI , NEUVILLETTE AND CHILDE DO NOT INTERACT / SRS I get aggressive against you guys when I ' m shifted to them delusionally I ' m so sorry ! ) , I have a typing quirk if you haven ' t noticed . . . I space out my punctuation UNLESS very upset . DO NOT REALITY CHECK PLEASE ! I do not like the ' F ' slur . KYS / KMS jokes are STRICTLY not allowed , etc <img src="https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/4e25f56b77720d16-dc/s75x75_c1/57a538e04a41243c39e47cf3233dea812e619c07.gif"/>
 </h4> 
 
 <h5 align="center">
